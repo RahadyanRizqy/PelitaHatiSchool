@@ -1,1 +1,1 @@
-# Jadi gini wok
+# Dummy text first submission
